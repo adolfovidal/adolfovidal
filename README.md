@@ -1,5 +1,7 @@
 
 Olá, eu sou Adolfo Vidal!👋
+
+Buscando conhecimento através de tecnologia.
   
 ##
   
