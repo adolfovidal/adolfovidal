@@ -1,7 +1,7 @@
 
 Olá, eu sou Adolfo Vidal!👋
 
-Buscando conhecimento através da tecnologia.
+Buscando conhecimento através de tecnologia Web.
   
 ##
   
